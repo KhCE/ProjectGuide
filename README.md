@@ -23,8 +23,8 @@
 - How will technology change our lives in twenty years?
 - Should people get identity chips implanted under their skin?
 - Should people in all countries have equal access to technological developments?
-- Can video gaming really help solve world problems? (see video)
-- How are brains different from computers? (see video)
+- Can video gaming really help solve world problems?
+- How are brains different from computers?
 - Is organic food really better for you than genetically modified foods?
 - What are genetically modified food technologies able to do? How does this compare with traditional plant breeding methods?
 - Should genetically modified food technologies be used to solve hunger issues?
